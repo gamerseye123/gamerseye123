@@ -1,5 +1,1 @@
-soup mayo potty
-
-i like being completly random sometimes, which is why my bio is filled with unfunny jokes.
-
-please give me head now.
+## NOTE: I am moving all my stuff to codeberg.org. Please go on there to see updates at https://codeberg.org/faceless/. Thanks.
